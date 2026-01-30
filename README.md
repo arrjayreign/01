@@ -16,6 +16,8 @@
 
 ㆐    i cosplay, draw, sing, and write.
 
+㆐    ppl i find cool r so scary. ull never see me int #cooked
+
 ***
 
 ### socials
