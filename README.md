@@ -2,7 +2,7 @@
 ***
 ⤷    u can call me jay/rj, or even tang
 
-㆐    i'm bisexual, genderfluid, and ambiamorous wit 2 partners.
+㆐    i'm bisexual, genderfluid, and ambiamorous wit 2 partners. (we're all dating irl)
 
 ㆐    self-diagnosed with social anxiety bt ik i do have it. just dont have enough to get diagnosed by a professional </3.
 
